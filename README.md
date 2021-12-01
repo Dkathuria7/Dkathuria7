@@ -24,4 +24,4 @@
 - 💬 Ask me about Anything on [Linkedin](https://www.linkedin.com/in/nakul-singh-gaur-7b4565179/)! I am happy to help.
 - 😄 Pronouns : **He/Him/His**
 
-Credits: [Dhairya Kathuria](https://github.com/eramkhann)
+Credits: [Dhairya Kathuria](https://github.com/Dkathuria7)
